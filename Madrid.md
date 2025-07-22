@@ -22,3 +22,4 @@ Senegals food:
 - https://maps.app.goo.gl/sXD6U6fnZjgqBayk9 (my favourite but you need to be there before 22:00 or wait for the next show which I guess start at 00:00 .. you need to be there before the show because of the big queue).
 - https://maps.app.goo.gl/jUuFwB325HS1AYdT7 (I guess they have a reggae music every Sunday at around 22:00).
 - https://maps.app.goo.gl/H7TxUXJdgEQuTYdv7 (Check their instagram page to know the shows which running on the day/time you plan to visit).
+- https://maps.app.goo.gl/zVtd8RJ9wCLRrCj4A (they always have live music after 22:30).
